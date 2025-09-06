@@ -1,6 +1,3 @@
-Got it  — I’ll tighten the README into a **recruiter-optimized version**: keyword-rich, accomplishment-driven, and aligned with **cloud, AI, and IT project management** roles. This way, it’s ATS-friendly but still shows your unique educator background.
-
-Here’s the revised version:
 
 ---
 
